@@ -1,0 +1,5 @@
+- 👋 Hola, soy @DankPapu también llamado Javier Torres tengo 17 años casi 18, soy Mexico y pronto del mundo.
+- 👀 Me interesa: La programacion, ingles, creacion de videojuegos, edicion de video y etc..
+- 🌱 Actualmente estoy aprendiendo a programar en distintos tipos de lenguaje.
+- 💞️ Busco colaborar en proyectos de unity y edicion de videos 
+- 📫 Cómo comunicarse conmigo (correo electrónico): javielo717@gmail.com
